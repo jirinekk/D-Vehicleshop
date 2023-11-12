@@ -1,0 +1,5 @@
+- 👋 Ahoj, jsem @jirinekk
+- 👀 Snažím se i o své scripty..
+- 🌱 Stále se nšco učím..
+- 💞️ Snažím se udělat dobrý projekt..
+- 🏡 Dělám mapy..
